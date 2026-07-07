@@ -1,0 +1,1 @@
+# Global-Energy-Consumption-Renewable-Generation-Analysis-Power-BI
